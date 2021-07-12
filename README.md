@@ -1,3 +1,3 @@
-👋 Hi, I’m Damian Truant
+👋 Hi, I’m Damián Truant
 
 
